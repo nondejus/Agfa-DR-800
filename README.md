@@ -1,1 +1,0 @@
-# Agfa-DR-800-Multi-Purpose-Digital-Imaging
